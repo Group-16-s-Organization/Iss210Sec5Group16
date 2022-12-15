@@ -5,3 +5,4 @@ This is where you should drop citations for all the images, links, articles, etc
 Coen-Sanchez, K., Ebenso, B., El-Mowafi, I.M. et al. Repercussions of overturning Roe v. Wade for women across systems and beyond borders. Reprod Health 19, 184 (2022). https://doi.org/10.1186/s12978-022-01490-y
 Shilling, F. (2022). The Supreme Court as composed June 30, 2022 to present. photograph, Washington D.C. 
 https://www.caryobgyn.com/7-common-pregnancy-complications-to-look-out-for/
+https://i2.wp.com/truepundit.com/wp-content/uploads/2018/07/roe-v-wade.jpg?fit=1024%2C768&ssl=1
